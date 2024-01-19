@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sep413901
+- 👀 I’m interested in gaming,scripting and more!
+- 🌱 I’m currently learning scripting
+- 💞️ I’m looking to collaborate on nobody
+- 📫 How to reach me email me on sep41490@gmail.com
+- 😄 Pronouns: he/him/couch/air/rabbit/cat/dog
+- ⚡ Fun fact: I know gow to hack!
